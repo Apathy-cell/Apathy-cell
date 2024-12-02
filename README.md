@@ -4,7 +4,7 @@
 💞️ I’m looking to collaborate on how affordable AI home healthcare could be the breakthrough in helping seniors with at-home care and companionship.
 - 📫 How to reach me? You can reach me via email or text which I will leave my phone number later on down the road
 - 😄 Pronouns: Female, her, she, woman, girl
-- ⚡ Fun fact: I may look naive but fool me once and what a fool you shall soon find yourself to be for I will bring pure hell upon your entire existence.
+- ⚡ Fun fact: I may look naive but fool me once and what a fool you shall soon find yourself in a whirlwind of chaos. 
 
 <!---
 Apathy-cell/Apathy-cell is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
